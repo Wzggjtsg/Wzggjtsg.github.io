@@ -1,2 +1,0 @@
-# Wzggjtsg.github.io
-vjhvhgchcvhbkcjkcjjk
